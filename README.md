@@ -26,6 +26,14 @@ On the topic and descriptions of Brainrot Mindsets...
 
 3. [December 2, 2024 — After more than 37000 votes on our shortlist, we're pleased to announce that the Oxford Word of the Year for 2024 is 'brain rot'.](https://corp.oup.com/news/brain-rot-named-oxford-word-of-the-year-2024/)
 
+&nbsp;
+
+&nbsp;
+
+# Rise Above, Highest Educations
+
+Education about learning itself. An eye on shared understanding and PLURIBUS comprehension. [Ēdūcere: Lead Out, Rise Up! Rise above the noise! *We The People* of WWW Pale Blue Dot... Rise above the brainrot!](/%C4%92d%C5%ABcere/%C4%92d%C5%ABcere_Lead_Out_Rise_Up.md)
+
 
 &nbsp;
 
