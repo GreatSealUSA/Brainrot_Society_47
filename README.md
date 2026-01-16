@@ -24,6 +24,9 @@ On the topic and descriptions of Brainrot Mindsets...
 
 2. [Teaching As a Subversive Activity: A No-Holds-Barred Assault on Outdated Teaching Methods-with Dramatic and Practical Proposals on How Education Can Be Made Relevant to Today's World](/Obduracy_Inaccessibility/The_Process_is_The_Mass_Age.md)
 
+3. [December 2, 2024 — After more than 37000 votes on our shortlist, we're pleased to announce that the Oxford Word of the Year for 2024 is 'brain rot'.](https://corp.oup.com/news/brain-rot-named-oxford-word-of-the-year-2024/)
+
+
 &nbsp;
 
 ### License
