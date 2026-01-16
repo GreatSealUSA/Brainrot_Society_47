@@ -13,7 +13,7 @@ Citizen Journey
 
 &nbsp;
 
-* Love your mama, love your brother, love them until they run for cover! Turn the light on. Keep your shirt on. https://www.youtube.com/watch?v=VxO0yuKWIF4 37,056 views December 4, 2018 Oh, Jesus! I'll keep my promise when... Please make mine *a double*, Sam! Stir it up nice...
+* Love your mama, love your brother, love them until they run for cover! Turn the light on. Keep your shirt on. https://www.youtube.com/watch?v=VxO0yuKWIF4 37,056 views December 4, 2018 Oh, Jesus! I'll keep my promise when... Please make mine *a double*, Sam! Stir it up nice... https://youtu.be/VxO0yuKWIF4?t=226 He's Here with ME AND YOU! We The People... TURN THAT HEARTBEAT OVER, AGAIN!
 
 &nbsp;
 
