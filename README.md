@@ -8,3 +8,8 @@ Suggested Hashtags for social media participation:
 2. #BrainRotSociety47
 3. #Brainrot47
 
+&nbsp;
+
+# Every 47 hours on WWW
+
+[Click Here... for some thoughts on every 47 hours. Allocation of time to work together and be serious in an ocean of distractions and brainrot](/Every_47_Hours/Every_47_Hours_WWW.md)
