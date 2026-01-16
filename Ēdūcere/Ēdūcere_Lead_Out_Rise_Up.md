@@ -26,3 +26,21 @@ https://www.youtube.com/watch?v=goivcDx3LMc
 
 
 ! ēdūcere !
+
+enregistré dans le cadre du Grand Concert 2 Rock Détente au Medley de Montréal    
+48,696 views August 22, 2007     
+"Suite Madame Blue" - Dennis DeYoung   
+https://www.youtube.com/watch?v=QLeI46wnSdQ   
+
+Lyrics:
+
+   But somehow you've changed, you're so far away
+   I long for the past and dream of the days with you
+   Madame Blue
+
+   Suite Madame Blue, gaze at your looking glass:
+   You're not a child anymore!
+   Suite Madame Blue, the future is all but past...
+   So dressed in your jewels, you made your own rules
+   You conquered the world and more:
+            Heaven's door!!!
