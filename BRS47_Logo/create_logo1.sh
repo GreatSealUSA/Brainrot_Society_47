@@ -9,12 +9,12 @@ GSUSAFILEOBVERSE="great_seal_obverse.svg"
 # centered
 function graphics_work_do {
     
-  ./magick -size 1280x640 xc:none \
+./magick -size 1280x640 xc:none \
      \( -density 300 "$GSUSAFILE"        -transparent white -resize x580 \) \
         -gravity center -geometry -320+0 -composite \
      \( -density 300 "$GSUSAFILEOBVERSE" -transparent white -resize x580 \) \
         -gravity center -geometry +320+0 -composite \
-    logo_sized.png
+  png8:BRS47_logo_sized_1280_x_640.png
 
 }
 
@@ -27,7 +27,7 @@ function graphics_work_do_one {
   -gravity center -geometry -344+0 -composite \
   \( -density 300 "$GSUSAFILEOBVERSE" -transparent white -resize x580 \) \
   -gravity center -geometry +229+0 -composite \
-  logo_sized.png
+  png8:BRS47_logo_sized_1280_x_640.png
 
 }
 
@@ -47,7 +47,7 @@ function graphics_work_do_two {
   -pointsize 15 \
   -gravity east -annotate 270x270+60-280 "#BrainRotSociety47" \
   \
-  logo_sized.png
+  png8:BRS47_logo_sized_1280_x_640.png
 
 }
 
@@ -76,4 +76,3 @@ else
   
   echo "Please re-run this bash script if the download worked..."
 fi
-
