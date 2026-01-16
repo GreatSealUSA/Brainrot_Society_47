@@ -13,6 +13,12 @@ Citizen Journey
 
 &nbsp;
 
+* Love your mama, love your brother, love them until they run for cover! Turn the light on. Keep your shirt on. https://www.youtube.com/watch?v=VxO0yuKWIF4 37,056 views December 4, 2018 Oh, Jesus! I'll keep my promise when... Please make mine *a double*, Sam! Stir it up nice...
+
+&nbsp;
+
+&nbsp;
+
 # 2026-01-16 Friday
 
 https://MidWest.Social/post/41939835    
