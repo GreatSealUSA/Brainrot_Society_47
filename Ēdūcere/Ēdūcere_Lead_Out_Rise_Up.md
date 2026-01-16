@@ -34,13 +34,13 @@ https://www.youtube.com/watch?v=QLeI46wnSdQ
 
 Lyrics:
 
-   But somehow you've changed, you're so far away
-   I long for the past and dream of the days with you
-   Madame Blue
+    But somehow you've changed, you're so far away
+    I long for the past and dream of the days with you
+    Madame Blue
 
-   Suite Madame Blue, gaze at your looking glass:
-   You're not a child anymore!
-   Suite Madame Blue, the future is all but past...
-   So dressed in your jewels, you made your own rules
-   You conquered the world and more:
-            Heaven's door!!!
+    Suite Madame Blue, gaze at your looking glass:
+    You're not a child anymore!
+    Suite Madame Blue, the future is all but past...
+    So dressed in your jewels, you made your own rules
+    You conquered the world and more:
+               Heaven's door!!!
