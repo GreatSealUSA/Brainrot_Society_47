@@ -8,11 +8,11 @@ https://en.wiktionary.org/wiki/educo#Latin
 
 Lyrics:    
 
-    Red, white, and blue, gaze in your looking glass
+    Red, white, and blue, gaze in your looking glass!
     You're not a child anymore!
     Red, white, and blue, the future is all but past!
     So lift up your heart, make a new start!
-    And lead us away from here
+    And lead us away... from here...
 
 Artist: Styx   
 Album: Equinox    
