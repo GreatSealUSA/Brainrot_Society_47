@@ -23,3 +23,9 @@ On the topic and descriptions of Brainrot Mindsets...
 1. [When World War I erupted, Sigmund Freud was horrified by the sudden "narrow-mindedness shown by the best intellects, their obduracy, their inaccessibility to the most forcible arguments."](/Obduracy_Inaccessibility/Mindsets_described_by_Howard_Bloom_August_2000.md)
 
 2. [Teaching As a Subversive Activity: A No-Holds-Barred Assault on Outdated Teaching Methods-with Dramatic and Practical Proposals on How Education Can Be Made Relevant to Today's World](/Obduracy_Inaccessibility/The_Process_is_The_Mass_Age.md)
+
+&nbsp;
+
+### License
+
+License: Public Domain. No Rights Reserved.   
