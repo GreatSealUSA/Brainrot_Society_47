@@ -11,6 +11,8 @@ Mega Violent
 https://www.youtube.com/watch?v=nWokGcF1sA4     
 Alex Garland's DREDD was just a bit...fascist?    
 20,552 views January 16, 2026    
+Channel: Science Fiction with Damien Walter    
+The Science Fiction podcast and Writing the 21st Century myth.    
 
 
 Super violent. Mega Violent: https://youtu.be/nWokGcF1sA4?t=305    
