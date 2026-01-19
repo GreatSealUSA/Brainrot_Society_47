@@ -48,7 +48,7 @@ When you go to your death that way, as a god, in the knowledge of the myth, you 
 
 BILL MOYERS: The god of death is the lord of the dance.
 
-CAMPBELL: The god of death is at the same time the lord of sex.
+CAMPBELL: The **god of death is at the same time the lord of sex**.
 
 MOYERS: What do you mean?
 
