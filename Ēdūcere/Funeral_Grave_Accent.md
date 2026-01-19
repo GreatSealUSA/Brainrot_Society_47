@@ -6,4 +6,12 @@ Accent on James Joyce's dead body of work
 &nbsp;
 
 * "Media ecology studies how communication technologies, not just their content, act as environments shaping human perception, culture, and society, stemming from Marshall McLuhan's "the medium is the message" in the 1960s, with Neil Postman formalizing the field and term in the late 1960s/early 1970s, examining how each dominant medium (print, TV, digital) alters human experience and societal structures, much like a biological ecosystem." - Google Search summary 2026-01-19 MLK Jr day - USA afternoon
-* 
+
+&nbsp;
+
+# Overloaded Meanings
+
+"The grave accent (`, ◌̀) is a diacritical mark used to varying degrees in French, Dutch, Portuguese, Italian, Catalan and many other Western European languages as well as for a few unusual uses in English. It is also used in other languages using the Latin alphabet, such as Mohawk and Yoruba, and with non-Latin writing systems such as the Greek and Cyrillic alphabets and the Bopomofo or Zhuyin Fuhao semi-syllabary. It has no single meaning, but can indicate pitch, stress, or other features."       
+https://en.wikipedia.org/wiki/Grave_accent
+
+
