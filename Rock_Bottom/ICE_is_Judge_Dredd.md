@@ -16,3 +16,5 @@ Alex Garland's DREDD was just a bit...fascist?
 Super violent. Mega Violent: https://youtu.be/nWokGcF1sA4?t=305    
 
 Battle of Algiers. Algeria. In the shadow of the Great Seal USA pyramid ideals. https://youtu.be/nWokGcF1sA4?t=892
+
+Woke Mind Virus. https://youtu.be/nWokGcF1sA4?t=1110
