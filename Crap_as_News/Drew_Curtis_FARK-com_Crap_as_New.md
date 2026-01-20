@@ -11,5 +11,5 @@ https://www.CBSNews.com/news/farks-drew-curtis-on-how-news-isnt-news/
 
 * Brian Montopoli: In printing soft, wacky, and **oddball news - or "crap,"** as you put it in your book title - aren't the media simply giving people what they want? News is a business, after all.
 
-* "It's not just consumers that are annoyed by this. Journalists themselves are in the same boat. I've met hundreds over the past few years, they're disgruntled and angry because they went into journalism to cover real stories and make a real difference, not waste time discussing drunk Germans getting arrested driving down the street in motorized wheelchairs."
+* "It's not just consumers that are annoyed by this. Journalists themselves are in the same boat. I've met hundreds over the past few years, they're disgruntled and angry because they went into journalism to cover **real stories** and make a **real difference**, not waste time discussing drunk Germans getting arrested driving down the street in motorized wheelchairs."
 
