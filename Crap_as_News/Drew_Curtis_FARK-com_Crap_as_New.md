@@ -17,7 +17,15 @@ https://www.CBSNews.com/news/farks-drew-curtis-on-how-news-isnt-news/
 
 # Long Slow Death: *no really*
 
-https://youtu.be/dY4-HT6wFU0?t=43   
+https://YouTu.be/dY4-HT6wFU0?t=43   
 "NOTACON 6: The Long Slow Death of Mainstream Media (no really): How We Got Here"   
 "It's not a dream, a hoax, or an imaginary story - mainstream media is indeed doomed. How did this happen? Can it be fixed? Is this the death of journalism? Is society going to collapse because of this? Are yes/no questions in headlines always no? Come find out. Bonus: Drew will use a random powerpoint slide generator to illustrate his talk."    
 142 views June 13, 2011    
+
+&nbsp;
+
+# "Crap As News" == "Brain Rot"
+
+Social Posts   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mcsw6dy6bk2x    
+https://Autistics.Life/@RoundSparrow/115924633616315818   
