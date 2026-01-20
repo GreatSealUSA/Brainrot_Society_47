@@ -3,7 +3,7 @@
 ::: **By Brian Montopoli** :::    
 ::: **May 23, 2007 / 9:30 AM EDT** :::
 
-\Year 2007, shortly before the Apple iPhone went on sale in year 2007.
+May of year 2007, shortly before the 2007 Apple iPhone 1 went on sale in year 2007.
 
 https://www.CBSNews.com/news/farks-drew-curtis-on-how-news-isnt-news/
 
