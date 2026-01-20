@@ -28,7 +28,8 @@ https://YouTu.be/dY4-HT6wFU0?t=43
 "It's not a dream, a hoax, or an imaginary story - mainstream media is indeed doomed. How did this happen? Can it be fixed? Is this the death of journalism? Is society going to collapse because of this? Are yes/no questions in headlines always no? Come find out. Bonus: Drew will use a random powerpoint slide generator to illustrate his talk."    
 142 views June 13, 2011    
 
-https://youtu.be/dY4-HT6wFU0?t=1459 "No Collusion" https://youtu.be/dY4-HT6wFU0?t=1833 "Digg" a week ago.
+https://youtu.be/dY4-HT6wFU0?t=1459 "No Collusion" https://youtu.be/dY4-HT6wFU0?t=1833 "Digg" a week ago. https://youtu.be/dY4-HT6wFU0?t=2456 "The second coming of new media" - Twitter. In June 2011, Curtis didn't see what was coming in year 2012. July 6, 2011 - ONE MONTH later after this video. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011
+
 
 &nbsp;
 
