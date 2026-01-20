@@ -28,6 +28,8 @@ https://YouTu.be/dY4-HT6wFU0?t=43
 "It's not a dream, a hoax, or an imaginary story - mainstream media is indeed doomed. How did this happen? Can it be fixed? Is this the death of journalism? Is society going to collapse because of this? Are yes/no questions in headlines always no? Come find out. Bonus: Drew will use a random powerpoint slide generator to illustrate his talk."    
 142 views June 13, 2011    
 
+https://youtu.be/dY4-HT6wFU0?t=1459 "No Collusion" 
+
 &nbsp;
 
 # "Crap As News" == "Brain Rot"
@@ -47,3 +49,5 @@ https://Autistics.Life/@RoundSparrow/115924633616315818
 Again, published shortly before the dawn of the Apple iPhone 1.
 
 * "Why does Mass Media treat the Out-of-Context Celebrity Comment as news in the first place? Who cares what Brad Pitt thinks about stem cells, or whether David Hasselhoff supports the **current presidential administration**? These people are actors, not experts on biogenetics or **political commentators. Hell, for some of them the term “actor”** applies only in the loosest of senses. But some people do care. Therein lies the problem. Entertainment and celebrity gossip attract a lot of Web site traffic. On Fark it’s the second most popular page on the entire site, the first being Fark’s main page itself. I can only assume this is standard across the rest of Mass Media as well. What better way to attract even more traffic than to **dress up an entertainment story as real news**? Once Brad Pitt says something about stem cells, the story is automatically a candidate for science and/or technology sections of Web sites or newscasts."
+
+ToDo: given how far ahead Drew Curtis could see, and how he published a nonfiction book that has largely been ignored. Populate WikiQuote . HELP PLEASE!
