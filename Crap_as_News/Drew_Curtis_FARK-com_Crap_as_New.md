@@ -1,4 +1,4 @@
-# Drew Curtis FARK.com *Crap As News*
+# Drew Curtis [FARK.com](https://www.Fark.com) *Crap As News*
 
 ::: **By Brian Montopoli** :::    
 ::: **May 23, 2007 / 9:30 AM EDT** :::
