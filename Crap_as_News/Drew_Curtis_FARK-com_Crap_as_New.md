@@ -37,3 +37,13 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mcsw6dy6bk2x
 https://Autistics.Life/@RoundSparrow/115924633616315818   
 
 *Ooops*, I did not put #BRS47 hashtags on these postings. Help me out, join in!  
+
+&nbsp;
+
+&nbsp;
+
+# Quotes from book 2007
+
+Again, published shortly before the dawn of the Apple iPhone 1.
+
+* "Why does Mass Media treat the Out-of-Context Celebrity Comment as news in the first place? Who cares what Brad Pitt thinks about stem cells, or whether David Hasselhoff supports the **current presidential administration**? These people are actors, not experts on biogenetics or **political commentators. Hell, for some of them the term “actor”** applies only in the loosest of senses. But some people do care. Therein lies the problem. Entertainment and celebrity gossip attract a lot of Web site traffic. On Fark it’s the second most popular page on the entire site, the first being Fark’s main page itself. I can only assume this is standard across the rest of Mass Media as well. What better way to attract even more traffic than to **dress up an entertainment story as real news**? Once Brad Pitt says something about stem cells, the story is automatically a candidate for science and/or technology sections of Web sites or newscasts."
