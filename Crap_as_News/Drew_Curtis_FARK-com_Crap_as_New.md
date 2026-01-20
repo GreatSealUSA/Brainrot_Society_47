@@ -7,7 +7,7 @@ May of year 2007, shortly before the 2007 Apple iPhone 1 went on sale in year 20
 
 https://www.CBSNews.com/news/farks-drew-curtis-on-how-news-isnt-news/
 
-* Drew Curtis, founder of Fark.com, has a book coming out on May 31st called "It's Not News, It's Fark: How Mass Media Tries To Pass Off Crap As News." We interviewed him over email.
+* Drew Curtis, founder of Fark.com, has a book coming out on May 31st called "It's Not News, It's Fark: How Mass Media Tries To Pass Off **Crap As News**." We interviewed him over email.
 
 * Brian Montopoli: In printing soft, wacky, and **oddball news - or "crap,"** as you put it in your book title - aren't the media simply giving people what they want? News is a business, after all.
 
