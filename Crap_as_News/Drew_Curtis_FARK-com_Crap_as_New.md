@@ -13,3 +13,11 @@ https://www.CBSNews.com/news/farks-drew-curtis-on-how-news-isnt-news/
 
 * "It's not just consumers that are annoyed by this. Journalists themselves are in the same boat. I've met hundreds over the past few years, they're disgruntled and angry because they went into journalism to cover **real stories** and make a **real difference**, not waste time discussing drunk Germans getting arrested driving down the street in motorized wheelchairs."
 
+&nbsp;
+
+# Long Slow Death: *no really*
+
+https://youtu.be/dY4-HT6wFU0?t=43   
+"NOTACON 6: The Long Slow Death of Mainstream Media (no really): How We Got Here"   
+"It's not a dream, a hoax, or an imaginary story - mainstream media is indeed doomed. How did this happen? Can it be fixed? Is this the death of journalism? Is society going to collapse because of this? Are yes/no questions in headlines always no? Come find out. Bonus: Drew will use a random powerpoint slide generator to illustrate his talk."    
+142 views June 13, 2011    
