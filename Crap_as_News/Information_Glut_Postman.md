@@ -8,6 +8,5 @@ https://www.dgsiegel.net/files/refs/Postman%20-%20Informing%20Ourselves%20to%20D
 "meeting of the German Informatics Society (Gesellschaft fuer Informatik) on October 11, 1990 in Stuttgart,
 sponsored by IBM-Germany."        
 
-
 https://youtu.be/8ApPkTvQ4QM?t=77 Situation of Meaninglessness. 
 
