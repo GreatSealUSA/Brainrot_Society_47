@@ -47,7 +47,7 @@ https://Autistics.Life/@RoundSparrow/115924633616315818
 
 &nbsp;
 
-# Quotes from book 2007
+# Quotes from book 年 2007
 
 Again, published shortly before the dawn of the Apple iPhone 1.
 
