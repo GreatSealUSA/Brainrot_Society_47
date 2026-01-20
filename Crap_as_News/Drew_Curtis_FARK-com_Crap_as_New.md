@@ -13,7 +13,7 @@ https://www.CBSNews.com/news/farks-drew-curtis-on-how-news-isnt-news/
 
 * "It's not just consumers that are annoyed by this. Journalists themselves are in the same boat. I've met hundreds over the past few years, they're disgruntled and angry because they went into journalism to cover **real stories** and make a **real difference**, not waste time discussing drunk Germans getting arrested driving down the street in motorized wheelchairs."
 
-* "however a lot of what people want isn't news, and we're talking about news sources giving up on their core mission - informing us. Journalism is straying into entertainment. The lines between serious news segments, news entertainment, and news comedy are blurring" - Wednesday May 23, 2007. Social post { https://Bsky.App/profile/roundsparrow.bsky.social/post/3mcsymegjkk2x https://autistics.life/@RoundSparrow/115924806527494330 }
+* "however a lot of what people want isn't news, and we're talking about news sources giving up on their core mission - informing us. Journalism is straying into entertainment. The lines between serious news segments, news entertainment, and news comedy are blurring" - Wednesday May 23, 2007. Social post { https://Bsky.App/profile/roundsparrow.bsky.social/post/3mcsymegjkk2x https://Autistics.Life/@RoundSparrow/115924806527494330 }
 
 &nbsp;
 
