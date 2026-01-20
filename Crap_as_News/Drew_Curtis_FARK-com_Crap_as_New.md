@@ -15,6 +15,12 @@ https://www.CBSNews.com/news/farks-drew-curtis-on-how-news-isnt-news/
 
 &nbsp;
 
+## 278 pages
+
+https://en.Wikipedia.org/wiki/It%27s_Not_News,_It%27s_FARK
+
+&nbsp;
+
 # Long Slow Death: *no really*
 
 https://YouTu.be/dY4-HT6wFU0?t=43   
