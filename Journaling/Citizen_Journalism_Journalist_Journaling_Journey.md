@@ -24,3 +24,12 @@ Citizen Journey
 https://MidWest.Social/post/41939835    
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mckj4zd4cc2u    
 https://Autistics.Life/@RoundSparrow/115905694684522780    
+
+&nbsp;
+
+# 2026-01-23 Friday morning USA
+
+https://autistics.life/@RoundSparrow/115944970231529157    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3md3x7fswlc2z    
+https://MidWest.Social/post/42299746    
+
