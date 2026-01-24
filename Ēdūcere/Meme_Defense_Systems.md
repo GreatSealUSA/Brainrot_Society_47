@@ -14,7 +14,7 @@ Defense against predatory marketing and scams
 Organize Defense Education efforts
 
 1. Protect the elderly from organized crime and mental exploitation
-2. Protedt children from predatory manipulation
+2. Protect children from predatory manipulation
 3. Protect against indoctrination into harmful cults
 
 &nbsp;
