@@ -9,7 +9,7 @@ Defense against Putin's Kremlin
 Defense against the Internet Research Agency   
 Defense against predatory marketing and scams   
 
-&nbpsp;
+&nbsp;
 
 Organize Defense Education efforts
 
