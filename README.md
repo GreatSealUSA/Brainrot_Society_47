@@ -7,6 +7,7 @@ Suggested Hashtags for social media participation:
 1. #BRS47
 2. #BrainRotSociety47
 3. #BrainRot47
+4. #Every47Hours
 
 &nbsp;
 
