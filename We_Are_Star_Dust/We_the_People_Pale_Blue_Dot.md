@@ -7,6 +7,7 @@ By the time we got to Woodstock, we were half a million strong! And Everywhere..
 
 &nbsp;
 
+New York City, The Big Apple   
 Left behind because of a TV show   
 Watched on television   
 "Wrote a little song for my friends to sing."  
