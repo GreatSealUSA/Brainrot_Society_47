@@ -10,6 +10,8 @@ Suggested Hashtags for social media participation:
 4. #Every47Hours
 5. #Déjà47Hours
 
+... ... .. ["Où sommes-nous, déjà?"](https://www.youtube.com/watch?v=OTL8PWhYy-Y)
+
 &nbsp;
 
 # Every 47 hours on WWW
