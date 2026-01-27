@@ -13,5 +13,6 @@ Left behind because of a TV show
 Watched on television   
 "Wrote a little song for my friends to sing."  
 https://youtu.be/E-he9mzrjCU?t=1469   
+1,563,814 views September 24, 2022     
 Joni Mitchell - Live at the BBC Television Centre, London, UK / Sept. 3, 1970   
 Thursday September 3, 1970   
