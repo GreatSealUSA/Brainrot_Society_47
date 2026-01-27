@@ -10,15 +10,17 @@ Suggested Hashtags for social media participation:
 4. #Every47Hours
 5. #Déjà47Hours
 
-... ... .. ["Où sommes-nous, déjà?"](https://www.youtube.com/watch?v=OTL8PWhYy-Y)
+... .. . ["Où sommes-nous, déjà?"](https://www.youtube.com/watch?v=OTL8PWhYy-Y)
 
 &nbsp;
+
 
 # Every 47 hours on WWW
 
 [Click Here... for some thoughts on every 47 hours. Allocation of time to work together and be serious in an ocean of distractions and brainrot](/Every_47_Hours/Every_47_Hours_WWW.md)
 
 &nbsp;
+
 
 # On Brainrot Mindsets
 
@@ -33,6 +35,7 @@ On the topic and descriptions of Brainrot Mindsets...
 &nbsp;
 
 &nbsp;
+
 
 # Rise Above, Highest Educations
 
