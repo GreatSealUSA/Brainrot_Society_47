@@ -7,4 +7,4 @@
 [Poverty_of_the_Spirit_nation.md](Poverty_of_the_Spirit_nation.md)  
 
 YouTube (essays and such):   
-[Encounters_End_World_Penguin.md](YpuTube/Encounters_End_World_Penguin.md)   
+[Encounters_End_World_Penguin.md](YouTube/Encounters_End_World_Penguin.md)   
