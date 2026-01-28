@@ -7,3 +7,4 @@ Evidence of NSA / Pentagon sandboxing ;) Paranoia USA January 2026.
 
 I also have a glitch that I create branches and normal merge prompts aren't working.
 
+I should have made a screen shot, but GitHub said I had "private repository" contributions and activity - to change settings to reveal that on account profile, and not sure why. I have not created any private repository.
