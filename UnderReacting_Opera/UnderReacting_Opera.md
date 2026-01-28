@@ -30,7 +30,7 @@ Summer of 1986
 
 "Compassion is to be reserved for members of your own group. The out-group is to be treated in a way described there in Deuteronomy."
 
-"Now, today there is no out-group anymore on the planet. And the problem of a modern religion is to have such compassion work for the whole of humanity. But then what happens to the aggression? (Summer of 1986) **This is a problem that the world is going to, have to face — because aggression** is a natural instinct just as much as, and more immediate than, compassion, and it is always going to be there. It’s a biological fact."
+"Now, today there is no out-group anymore on the planet. And the problem of a modern religion is to have such compassion work for the whole of humanity. But then what happens to the aggression? (Summer of 1986) **This is a problem that the world is going to have to face — because aggression** is a natural instinct just as much as, and more immediate than, compassion, and it is always going to be there. It’s a biological fact."
 
 &nbsp;
 
