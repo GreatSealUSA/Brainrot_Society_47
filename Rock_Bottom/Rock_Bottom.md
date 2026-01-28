@@ -8,3 +8,4 @@
 
 YouTube (essays and such):   
 [Encounters_End_World_Penguin.md](YouTube/Encounters_End_World_Penguin.md)   
+[MonoMetaphor_We_Create_Meaning.md](YouTube/MonoMetaphor_We_Create_Meaning.md)   
