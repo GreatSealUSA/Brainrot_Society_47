@@ -14,6 +14,9 @@ Suggested Hashtags for social media participation:
 
 &nbsp;
 
+> NAVIGATE: [Jouraling some changes + promotion](/Journaling/Citizen_Journalism_Journalist_Journaling_Journey.md)
+
+&nbsp;
 
 # Every 47 hours on WWW
 
