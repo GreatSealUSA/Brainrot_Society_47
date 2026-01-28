@@ -4,7 +4,7 @@ Wednesday January 28, 2026 Morning USA
 
 Social Post    
 https://bsky.app/profile/greatsealusa.bsky.social/post/3mdiklz2x7s2l   
-https://autistics.life/@RoundSparrow/115973358682851759    
+https://Autistics.Life/@RoundSparrow/115973358682851759    
 https://MidWest.Social/post/42566873    
 
 https://old.Reddit.com/r/comics/comments/1qpa5tp/maybe_you_werent_oc/
