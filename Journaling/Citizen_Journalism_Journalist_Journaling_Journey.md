@@ -41,3 +41,11 @@ https://MidWest.Social/post/42299746
 
 https://BSky.app/profile/roundsparrow.bsky.social/post/3mdbcmc75xs2p   
 https://autistics.life/@RoundSparrow/115957044327641922
+
+&nbsp;
+
+# Wednesday January 28, 2026 Morning USA   
+
+Originating   
+"UnderReacting Opera"   
+[/UnderReacting_Opera/UnderReacting_Opera.md](/UnderReacting_Opera/UnderReacting_Opera.md)    
