@@ -14,7 +14,7 @@ Suggested Hashtags for social media participation:
 
 &nbsp;
 
-> NAVIGATE: [Journaling some changes + promotion](/Journaling/Citizen_Journalism_Journalist_Journaling_Journey.md)
+> NAVIGATE: [Journaling some changes + promotion](Journaling/Citizen_Journalism_Journalist_Journaling_Journey.md) ... [Crap_as_News](/r/Crap_as_News/Crap_as_News.md)
 
 &nbsp;
 
