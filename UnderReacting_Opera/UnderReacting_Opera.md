@@ -12,7 +12,7 @@ https://old.Reddit.com/r/comics/comments/1qpa5tp/maybe_you_werent_oc/
 &nbsp;
 
 A man with a gun and a MAGA Red Hat - Year 2016.   
-OPERA_A I could be wrong... https://www.youtube.com/watch?v=k2-y0nxdBAM My Civic Ditty. CITIZEN STEELY DANDOM. 23,153 views December 4, 2018
+OPERA_A I could be wrong... https://www.youtube.com/watch?v=k2-y0nxdBAM My Civic Ditty. CITIZEN STEELY [DANDOM.](/Journaling/Citizen_Journalism_Journalist_Journaling_Journey.md) 23,153 views December 4, 2018
 
 &nbsp;
 
