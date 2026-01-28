@@ -10,8 +10,6 @@ https://MidWest.Social/post/42566873
 INSPIRED BY    
 https://Old.Reddit.com/r/comics/comments/1qpa5tp/maybe_you_werent_oc/
 
-Reddit Social   
-https://preview.redd.it/l9rm54ac43gg1.jpg   
 
 &nbsp;
 
