@@ -42,7 +42,7 @@ On the topic and descriptions of Brainrot Mindsets...
 
 # Rise Above, Highest Educations
 
-Education about learning itself. An eye on shared understanding and PLURIBUS comprehension. [Ēdūcere: Lead Out, Rise Up! Rise above the noise! *We The People* of WWW Pale Blue Dot... Rise above the brainrot!](/%C4%92d%C5%ABcere/%C4%92d%C5%ABcere_Lead_Out_Rise_Up.md)
+Education about learning itself. An eye on shared understanding and PLURIBUS comprehension. [Ēdūcere: Lead Out, Rise Up! Rise above the noise! *We The People* of WWW Pale Blue Dot... Rise above the brainrot!](%C4%92d%C5%ABcere/%C4%92d%C5%ABcere_Lead_Out_Rise_Up.md)
 
 
 &nbsp;
