@@ -50,5 +50,5 @@ Lyrics:
 &nbsp;
 
 > NAVIGATE: [Community_Standards_Moderation_Censorship](Community_Standards_Moderation_Censorship.md) ... 
-[Funeral_Grave_Accent](Community_Standards_Moderation_Censorship)
+[Funeral_Grave_Accent](Funeral_Grave_Accent.md) ...
 [Meme_Defense_Systems](Meme_Defense_Systems.md)
