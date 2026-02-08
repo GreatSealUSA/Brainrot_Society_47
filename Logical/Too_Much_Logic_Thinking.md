@@ -37,3 +37,28 @@ https://autistics.life/@RoundSparrow/116032196995097724
 # Systemic Fallout
 
 * "That is the meaning of love. In the final analysis, love is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil systems. Individuals who happen to be **caught up in that system**, you love, but you seek to defeat the system." - King, Jr., Martin Luther (1957-11-17)
+
+&nbsp;
+
+# Squeezed by Systems
+
+Skywalker Ranch California   
+George Lucas filmed lessons for fandom of Star Wars   
+1985, 1986, 1987. Published in year 1988   
+Han Solo discussion   
+
+&nbsp;
+
+MOYERS: Do you think that a hero is created out of guilt? Was Solo guilty because he had abandoned Skywalker?
+
+CAMPBELL: It depends on what system of ideas you want to apply. Solo was a very practical guy, at least as he thought of himself, a materialist. But he was a compassionate human being at the same time and didn’t know it. The adventure evoked a quality of his character that he hadn’t known he possessed.
+
+BILL MOYERS: So perhaps the hero lurks in each one of us when we don’t know it?
+
+CAMPBELL: Our life evokes our character. You find out more about yourself as you go on. That’s why it’s good to be able to put yourself in situations that will evoke your higher nature rather than your lower. “Lead us not into temptation.”
+
+Ortega y Gasset talks about the environment and the hero in his Meditations on Don Quixote. Don Quixote was the last hero of the Middle Ages. He rode out to encounter giants, but instead of giants, his environment produced windmills. Ortega points out that this story takes place **about the time that a mechanistic interpretation of the world came in**, so that the environment was no longer spiritually responsive to the hero. The hero is today running up against a hard world that is in no way responsive to his spiritual need.
+
+BILL MOYERS: A windmill.
+
+CAMPBELL: Yes, but Quixote saved the adventure for himself by inventing a magician who had just transformed the giants he had gone forth to encounter into windmills. You can do that, too, if you have a poetic imagination. Earlier, though, it was not a mechanistic world in which the hero moved but a world alive and responsive to his spiritual readiness. **Now it has become to such an extent a sheerly mechanistic world, as interpreted through our physical sciences, Marxist sociology, and behavioristic psychology, that we’re nothing but a predictable pattern of wires responding to stimuli. This nineteenth-century interpretation has squeezed the freedom of the human will** out of modern life.
