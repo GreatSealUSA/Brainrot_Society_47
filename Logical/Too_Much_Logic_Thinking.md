@@ -15,7 +15,9 @@ Too much cramming things into bits
 
 https://Old.Reddit.com/r/sports/comments/1qyrbsf/team_usa_figure_skater_amber_glenn_speaking_at/o45qn44/
 
-* "By that logic, only politicians can talk politics. All the rest of us can only talk about our jobs."
+* "By that logic, only politicians can talk politics. All the rest of us can only talk about our jobs." - Saturday, February 7, 2026
+
+<img width="891" height="397" alt="image" src="https://github.com/user-attachments/assets/475495c9-fc1d-4186-9882-963d90696bd0" />
 
 &nbsp;
 
