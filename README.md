@@ -14,7 +14,7 @@ Suggested Hashtags for social media participation:
 
 &nbsp;
 
-> NAVIGATE: [Journaling some changes + promotion](Journaling/Citizen_Journalism_Journalist_Journaling_Journey.md) ... [Crap_as_News](/Crap_as_News/Crap_as_News.md) ... [Rock_Bottom BrainRot](Rock_Bottom/Rock_Bottom.md)
+> NAVIGATE: [Journaling some changes + promotion](Journaling/Citizen_Journalism_Journalist_Journaling_Journey.md) ... [Crap_as_News](/Crap_as_News/Crap_as_News.md) ... [Rock_Bottom BrainRot](Rock_Bottom/Rock_Bottom.md) .. ??? Surprisingly, [Too Much Logical Thinking?](Logical/Too_Much_Logic_Thinking.md)
 
 &nbsp;
 
