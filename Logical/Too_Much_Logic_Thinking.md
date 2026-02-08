@@ -29,3 +29,11 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mecoqxzgwk2n
 https://autistics.life/@RoundSparrow/116032196995097724   
 
 ***I know it sounds absurd, please tell me who I am!****
+
+&nbsp;
+
+&nbsp;
+
+# Systemic Fallout
+
+* "That is the meaning of love. In the final analysis, love is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil systems. Individuals who happen to be **caught up in that system**, you love, but you seek to defeat the system." - King, Jr., Martin Luther (1957-11-17)
