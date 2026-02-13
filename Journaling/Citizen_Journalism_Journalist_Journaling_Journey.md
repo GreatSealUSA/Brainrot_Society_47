@@ -60,3 +60,8 @@ Google Search for quoted phrase "Brainrot Society 47"
 
 Posted hashtags and GitHub project promo on Elon Musk Twitter platform   
 https://x.com/RoundSparrow/status/2022353252529082416
+
+Ran across a great video, put Brain Rot Society 47 on it.   
+https://GitHub.com/GreatSealUSA/Brainrot_Society_47/blob/main/UnderReacting_Opera/Stop_Shit_Posting_Please.md#examples-of-avoiding-shit-posting   
+https://MidWest.Social/post/43414922    
+https://Bsky.App/profile/roundsparrow.bsky.social/post/3mer3cpietc2h    https://Autistics.Life/@RoundSparrow/116064605461465540  
