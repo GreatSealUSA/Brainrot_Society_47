@@ -16,6 +16,8 @@ Suggested Hashtags for social media participation:
 
 > NAVIGATE: [Journaling some changes + promotion](Journaling/Citizen_Journalism_Journalist_Journaling_Journey.md) ... [Crap_as_News](/Crap_as_News/Crap_as_News.md) ... [Rock_Bottom BrainRot](Rock_Bottom/Rock_Bottom.md) .. ??? Surprisingly, [Too Much Logical Thinking?](Logical/Too_Much_Logic_Thinking.md)
 
+"Brain Rot Society 47" with the space too :)
+
 &nbsp;
 
 # Every 47 hours on WWW
