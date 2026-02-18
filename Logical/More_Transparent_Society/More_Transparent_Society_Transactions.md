@@ -43,3 +43,4 @@ Distress alerts. Even if someone is a slow worker, they are in financial distres
 
 Auditors / reviewers / editors who sincerely evaluate and confirm circumstances and the auditors must be fully transparent about their life and lifestyle.
 
+Perhaps a full disclosure fees and conventions? Video record the entire maintenance work / technical work. Independent filming / recording optional upgrade too. For home construction and "behind the walls", have people who are skilled and evaluated/rated who do this with an eye towards ongoing maintenance and knowing any weather during construction or rushed work.
