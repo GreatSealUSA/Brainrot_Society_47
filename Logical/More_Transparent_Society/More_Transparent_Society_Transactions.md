@@ -44,3 +44,5 @@ Distress alerts. Even if someone is a slow worker, they are in financial distres
 Auditors / reviewers / editors who sincerely evaluate and confirm circumstances and the auditors must be fully transparent about their life and lifestyle.
 
 Perhaps a full disclosure fees and conventions? Video record the entire maintenance work / technical work. Independent filming / recording optional upgrade too. For home construction and "behind the walls", have people who are skilled and evaluated/rated who do this with an eye towards ongoing maintenance and knowing any weather during construction or rushed work.
+
+Apprentice and Trainee support. Allow trainees to work with supervised, in the greater interest of greater good of society having people who have experience with more practiced skills. Maybe special filming crews come in to turn trainee apprentice jobs into teachable opportunities for public education. Emphasis on kindness. And perhaps a special insurance fee pool for mistakes. Loaner replacement equipment, etc. A union of kindness apprentice and shared-skill in more cooperative than compete-defeat mindset.
