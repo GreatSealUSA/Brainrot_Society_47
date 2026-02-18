@@ -1,0 +1,6 @@
+# More Transparent Society: Transactions
+
+Pondering how we interact with *preventative maintenance*...
+
+...Air conditioner service, house cleaning, machine lubrication, fire drills, mob mentality drills...
+
