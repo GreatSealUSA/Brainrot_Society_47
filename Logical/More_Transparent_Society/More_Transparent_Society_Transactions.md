@@ -2,7 +2,7 @@
 
 Pondering how we interact with *preventative maintenance*...
 
-...Air conditioner service, house cleaning, machine lubrication, fire drills, mob mentality drills...
+...Air conditioner service, house cleaning, machine lubrication, fire drills, mob mentality drills, inspections, testing validation...
 
 &nbsp;
 
@@ -31,6 +31,15 @@ Planned holidays, planned weddings, planned surgery, planned birthdays, planned 
 
 # Piles of Words
 
-Very much draft, work in progress this entire page and project.   
+Very much draft, work in progress this entire page and project. Trying to put complex experiences and ideas into language.
+
+...
 
 A key concern is this applies in every area of society if possible / working out. Fast food workers, essential workers in grocery stores, delivery workers, supply chain, technical workers for technology systems that others depend on, etc.
+
+Geographic locations mapped to skills. If there are people who work form home that offer a preventative service or maintenance, build sophisticated systems of listing their availability. Exact location, hours available, flexibility, cost per demand, low-demand discount, urgent express, etc. So when people are on holiday or traveling, they can optimize choosing a otherwise remote location because they are in the area.
+
+Distress alerts. Even if someone is a slow worker, they are in financial distress and transparently indicating this to society that they may need more time but are desperate for the work. Indicate transparently any ongoing GoFundMe integration, etc.
+
+Auditors / reviewers / editors who sincerely evaluate and confirm circumstances and the auditors must be fully transparent about their life and lifestyle.
+
