@@ -14,7 +14,8 @@ Suggested Hashtags for social media participation:
 
 &nbsp;
 
-> NAVIGATE: [Journaling some changes + promotion](Journaling/Citizen_Journalism_Journalist_Journaling_Journey.md) ... [Crap_as_News](/Crap_as_News/Crap_as_News.md) ... [Rock_Bottom BrainRot](Rock_Bottom/Rock_Bottom.md) .. ??? Surprisingly, [Too Much Logical Thinking?](Logical/Too_Much_Logic_Thinking.md)
+> NAVIGATE: [Journaling some changes + promotion](Journaling/Citizen_Journalism_Journalist_Journaling_Journey.md) ... [Crap_as_News](/Crap_as_News/Crap_as_News.md) ... [Rock_Bottom BrainRot](Rock_Bottom/Rock_Bottom.md) .. ??? Surprisingly, [Too Much Logical Thinking?](Logical/Too_Much_Logic_Thinking.md) ...
+[Top 13 **Avoided Topics**](/Avoided_Topics/Top_13_Avoided_Topics.md)
 
 "Brain Rot Society 47" with the space too :)
 
