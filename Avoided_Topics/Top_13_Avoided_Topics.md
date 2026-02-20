@@ -4,7 +4,7 @@
    * It is my **Brain Rot Assertion** ( ToDo: Collapsible section? ) that every time someone complains about "Fox News", "Newsmax", "Alex Jones" they have failed in their civic duty if they do not name-drop the film title or Jen Senko's name. Stand up for the Little Gal!
 
 2. **Dr. Bandy X Lee**. In year 2017, Dr. Bandy X Lee stood up. "In 2017, Lee organized a conference at Yale on the mental health of Donald Trump" https://en.wikipedia.org/wiki/Bandy_X._Lee
-   * It is my **Brain Rot Assertion** that every time someone comments: { Insane, Crazy, Dementia, Demented, Syphilitic, Senile, Batshit (Crazy), Bonkers, Mentally Unwell } and related terms... they had a civic duty to name-drop the organization efforts books published by Dr. Bandy X Lee.
+   * It is my **Brain Rot Assertion** that every time someone comments: { Insane, Crazy, Dementia, Demented, Syphilitic, Senile, Batshit (Crazy), Bonkers, Nuts, Mentally Unwell } and related terms... they had a civic duty to name-drop the organization efforts books published by Dr. Bandy X Lee.
 
 3. **Surkov**. Vladislav Surkov. Vlad Putin, Vlad Surkov, Two Vlads. **October 20, 2011** stable established reference point of clarity that we should all be quoting, citing, linking. https://www.LBR.co.UK/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
    * The October 20, 2011 story is an early warning of Trump. And it is FAR ENOUGH back, before Trump became the center of all media systems attention and focus. Reminder: July 6, 2011 - that same year https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 when Twitter + Donald Trump started to steamroll society with Tweet power.
