@@ -8,6 +8,13 @@
 
 3. **Surkov**. Vladislav Surkov. Vlad Putin, Vlad Surkov, Two Vlads.
 
-4.  Andrew Postman
+4.  **Andrew Postman**. February 2, 2017 https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
+    * It is my **Brain Rot Assertion** that every time someone complains about { "The Media", "Mainstream media", "news", "news coverage", "media", "Fox News", "CBS" } and related terms... they have a civic duty to cite Neil Postman's 184 page book and this February 2, 2017 deceleration of Andrew Postman.
+    * It is a symptom of *"Brain Rot Society 47** concern that people are avoiding nonfiction serious **on the same page** at the same time shared understanding of complex and difficult to face emotionally painful topics!
 
-5.  
+6.  **Luigi Mangione**. It is a fundamental mistake to name-drop "Luigi" and not mention that he is a price of a golf-course real estate empire. Similar to Donald Trump's family.
+    * I consider this an important assertion about his family wealth and golf-course associations. Because it highlights the anti-nonfiction book aspect of society.
+    * It is my **Brain Rot Assertion** that since December 4, 2024 the AVOIDANCE of people name-dropping and mentioning the January 1944 Second Bill of Rights is another symptom of mass brain rot. https://en.wikipedia.org/wiki/Second_Bill_of_Rights
+    * What good is free health care if land-lords like the Mangione family and Trump family give society free medical by **raising rent and housing prices** from $1,800 a month to $4,200 a month? We The People are not looking at the forest for the trees. Housing crisis has been part of the health insurance cost crisis.
+    * The gunman put a message on the bullet. And **Brain Rot Society 47** concern is the avoidance of nonfiction serious learning. it is not enough for the Reddit social to name-drop "Luigi". We MUST WITNESS and CALL OUT the Brain Rot behavior of avoiding the nonficiton book that was rotting on the public library shelves since year 2010 publication! 256 pages of nonfiction we should all be quoting EVERY TIME people mention or discuss Luigi! https://en.wikipedia.org/wiki/Delay,_Deny,_Defend
+  
