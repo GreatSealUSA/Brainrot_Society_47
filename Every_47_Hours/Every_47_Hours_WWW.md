@@ -6,7 +6,9 @@ Every *47 hours* on the World Wide Web
 
 # Why?
 
-Again and again, We The People will not use social media to halt entertainment and tell all children in the entire world that the USA is in trouble and we need mental health professionals to organize around Dr. Bandy X Lee. But instead, we get social media comments like this all the time every day, tree after tree, and nobody seeing the forest problem. Every 47 hour all social media community (on each site) **dedicate between 1 to 4 hours** to make a FAQ / Wiki on what priorities are. The 47 hours being inspired by Trump's term. **The BrainRot Society 47**. And that also shifts it to different times of the day for the whole world to get daytime and nighttime coverage over months and years.
+Again and again, We The People will not use social media to halt entertainment and tell all children in the entire world that the USA is in trouble and **we need all mental health professionals to organize** around Dr. Bandy X Lee. SEE: https://en.Wikipedia.org/wiki/Bandy_X._Lee But instead, we get social media comments and memes... all the time every day, tree after tree, and nobody seeing the forest problem.
+
+Every 47 hour all social media community (on each site) **dedicate between 1 to 4 hours** to make a FAQ / Wiki on what priorities are. The 47 hours being inspired by Trump's term. **The BrainRot Society 47**. And that also shifts it to different times of the day for the whole world to get daytime and nighttime coverage over months and years.
 
 * "It will take 1,128 hours (47 days, or approximately 1.55 months) until every possible hour of the day is covered by a meeting start time." - Google Search summary. 2026-01-04 night USA
 
