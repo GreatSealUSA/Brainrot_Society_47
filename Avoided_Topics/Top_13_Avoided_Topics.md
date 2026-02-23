@@ -8,6 +8,7 @@
 
 3. **Surkov**. Vladislav Surkov. Vlad Putin, Vlad Surkov, Two Vlads. **October 20, 2011** stable established reference point of clarity that we should all be quoting, citing, linking. https://www.LBR.co.UK/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
    * The October 20, 2011 story is an early warning of Trump. And it is FAR ENOUGH back, before Trump became the center of all media systems attention and focus. Reminder: July 6, 2011 - that same year https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 when Twitter + Donald Trump started to steamroll society with Tweet power.
+   * December 5, 2014 book reading in a book store in Washington D.C. USA. https://www.youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ  time index of 7:55 in total video. "would go on to **call the Fifth World War**. The first nonlinear war of all against all. Which is a description by Vladislav Surkov, who sort of the ennui ??? of Russian politics, of the current (year 2014) war around Ukraine. um, so, I started working in Russian TV"
 
 5.  **Andrew Postman**. February 2, 2017 https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
     * It is my **Brain Rot Assertion** that every time someone complains about { "The Media", "Mainstream media", "news", "news coverage", "media", "Fox News", "CBS" } and related terms... they have a civic duty to cite Neil Postman's 184 page book and this February 2, 2017 deceleration of Andrew Postman.
