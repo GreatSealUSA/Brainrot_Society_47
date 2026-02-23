@@ -14,7 +14,7 @@
     * It is my **Brain Rot Assertion** that every time someone complains about { "The Media", "Mainstream media", "news", "news coverage", "media", "Fox News", "CBS" } and related terms... they have a civic duty to cite Neil Postman's 184 page book and this February 2, 2017 deceleration of Andrew Postman.
     * It is a symptom of *"Brain Rot Society 47** concern that people are avoiding nonfiction serious **on the same page** at the same time shared understanding of complex and difficult to face emotionally painful topics!
 
-6.  **Luigi Mangione**. It is a fundamental mistake to name-drop "Luigi" and not mention that he is a price of a golf-course real estate empire. Similar to Donald Trump's family.
+6.  **Luigi Mangione**. It is a fundamental mistake to name-drop "Luigi" and not mention that he is a prince of a golf-course real estate empire family. Similar to Donald Trump's family.
     * I consider this an important assertion about his family wealth and golf-course associations. Because it highlights the anti-nonfiction book aspect of society.
     * It is my **Brain Rot Assertion** that since December 4, 2024 the AVOIDANCE of people name-dropping and mentioning the January 1944 Second Bill of Rights is another symptom of mass brain rot. https://en.wikipedia.org/wiki/Second_Bill_of_Rights
     * What good is free health care if land-lords like the Mangione family and Trump family give society free medical by **raising rent and housing prices** from $1,800 a month to $4,200 a month? We The People are not looking at the forest for the trees. Housing crisis has been part of the health insurance cost crisis.
