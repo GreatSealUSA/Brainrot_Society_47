@@ -103,3 +103,4 @@ Parents in #USA made Donald Trump the role model of leadership and success.
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmwg6vzac2b   
 https://autistics.life/@RoundSparrow/116127317459566038   
+https://midwest.social/post/43880686   
