@@ -13,7 +13,7 @@ https://www.TheGuardian.com/commentisfree/2026/feb/23/15-year-old-girl-misogyny-
 "I am a 15-year-old girl. Let me show you the vile misogyny that confronts me on social media every day"   
 "Objectification, hate, rape threats: the politicians debating online abuse mean well, but to truly understand, they need to see what I see"   
 
-"If you’re anything like my parents, you probably wouldn’t even understand most of the content that floods my social media, no matter how hard I try to avoid it.
+"If you’re anything like my parents, you probably wouldn’t even understand most of the content that floods my social media, no matter how hard I try to avoid it."
 
 "Here’s a recent example from Instagram: “Do y’all females ever tell ur homegirls ‘Sis chill you letting too many dudes hit?’” Essentially, that means: “Women – do you ever tell your girlfriends that they’re whores and need to stop letting so many guys fuck them?” The reel, posted by a 19-year-old man, appeared on my Instagram feed without me wanting to see it, or ever interacting with any other similar content. The comments that followed were pure misogyny. “Women see body count as a leaderboard and they try to outdo each other,” was one of them. Translation: all women are competitively promiscuous."
 
