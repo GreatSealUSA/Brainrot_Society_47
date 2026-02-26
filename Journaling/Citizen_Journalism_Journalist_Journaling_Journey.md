@@ -104,3 +104,17 @@ Parents in #USA made Donald Trump the role model of leadership and success.
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfmwg6vzac2b   
 https://autistics.life/@RoundSparrow/116127317459566038   
 https://midwest.social/post/43880686   
+
+&nbsp;
+
+# Thursday February 26, 2026 morning
+
+People are taking education for adults for granted. Fox News, Reddit, Twitter, Facebook, Newsmax, YouTube, Church, Mosque, Synagogue are where adults go for education. Entertainment venues.   
+People are taking comprehension, understanding in adulthood for granted. The world has become driven by high-speed information systems, electronic media, and people obsolete and abandon books on paper.   
+
+This 1955 book quote describes what We The People, all of us, are living under in United States of America in late February year 2026:
+
+* “The other nine, decent, hard-working, **ordinarily intelligent and honest men, did not know before 1933 that Nazism was evil**. They did not know between 1933 and 1945 that it was evil. And they do not know it now. None of them ever knew, or now knows, Nazism as we knew and know it; and they lived under it, served it, and, indeed, made it.” ― Milton Sanford Mayer, [They Thought They Were Free: The Germans, 1933-45. Published year 1955. Page 47. Nonfiction book on paper.](https://books.google.com/books?id=axNDDwAAQBAJ&pg=PA47&dq=%E2%80%9CThe+other+nine,+decent,+hard-working,+ordinarily+intelligent+and+honest+men,+did+not+know+before+1933+that+Nazism+was+evil.%22&hl=en&newbks=1&newbks_redir=1&sa=X&ved=2ahUKEwiyn73mrveSAxWQIjQIHevAPDQQ6AF6BAgIEAM)
+
+NEW_OPERA_NAME #OrdinarilyIntelligent #NotKnowBefore    
+Social post { https://autistics.life/@RoundSparrow/116137422767493237 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfrg2ght2k24 }   
