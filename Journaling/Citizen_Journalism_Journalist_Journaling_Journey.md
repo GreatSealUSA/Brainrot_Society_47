@@ -122,3 +122,5 @@ Social post { https://autistics.life/@RoundSparrow/116137422767493237 https://bs
 **Thursday Afternoon**   
 
 Same day, I also finally revisited a related website and created a dedicated page for "Brainrot Society 47" promotion! https://www.1776Wake.com/Brain_Rot_Society_47
+
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfs5u53pec2p https://autistics.life/@RoundSparrow/116139096278779524 }   
