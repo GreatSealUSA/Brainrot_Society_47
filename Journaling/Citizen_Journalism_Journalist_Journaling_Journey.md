@@ -123,7 +123,7 @@ Social post { https://autistics.life/@RoundSparrow/116137422767493237 https://bs
 
 Same day, I also finally revisited a related website and created a dedicated page for "Brainrot Society 47" promotion! https://www.1776Wake.com/Brain_Rot_Society_47
 
-Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfs5u53pec2p https://autistics.life/@RoundSparrow/116139096278779524 https://bsky.app/profile/greatsealusa.bsky.social/post/3mfs65cqlkk2p https://X.com/RoundSparrow/status/2027144951281389902 https://old.reddit.com/r/1776Wake }   
+Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfs5u53pec2p https://autistics.life/@RoundSparrow/116139096278779524 https://bsky.app/profile/greatsealusa.bsky.social/post/3mfs65cqlkk2p https://X.com/RoundSparrow/status/2027144951281389902 https://old.reddit.com/r/1776Wake https://Groups.Google.com/g/wwwopera/c/C64ahNbaQV0 }   
 
 The tagline on the 1776Wake.com website is: "**1776Wake.com - Finnegans Wake to read the 1776 Founding Fathers properly**"
 
