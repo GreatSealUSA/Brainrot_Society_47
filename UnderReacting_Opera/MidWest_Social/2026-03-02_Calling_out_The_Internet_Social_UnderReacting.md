@@ -4,7 +4,7 @@ Calling out The Internet Social UnderReacting
 
 I replied to a relevant posting on MidWest.Social 
 
-**Comment 22980415***    
+**Comment 22980415**    
 https://MidWest.Social/post/44148626/22980415   
 
 &nbsp;
