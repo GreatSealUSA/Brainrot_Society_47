@@ -47,6 +47,11 @@ On the topic and descriptions of Brainrot Mindsets...
 
 Education about learning itself. An eye on shared understanding and PLURIBUS comprehension. [Ēdūcere: Lead Out, Rise Up! Rise above the noise! *We The People* of WWW Pale Blue Dot... Rise above the brainrot!](%C4%92d%C5%ABcere/%C4%92d%C5%ABcere_Lead_Out_Rise_Up.md)
 
+&nbsp;
+
+![English Class](/%C4%92d%C5%ABcere/Finnegans_Wake_English_Class.webp)
+
+* English Class. University of Toronto. James Joyce, English and media. "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966
 
 &nbsp;
 
