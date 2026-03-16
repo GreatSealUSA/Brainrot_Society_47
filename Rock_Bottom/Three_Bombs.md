@@ -12,3 +12,12 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3mh72l5ms2224
 https://www.youtube.com/watch?v=uF3reVVUbio    
 Phoenix - Lisztomania    
 27,315,959 views December 7, 2009 ARAB_SPRING_2010    
+
+&nbsp;
+
+# Truth Bombs Abound
+
+NEW_OPERA_NAME #TruthBombsAbound    
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mh73cq7nb22b    
+https://autistics.life/@RoundSparrow/116240246931033904    
