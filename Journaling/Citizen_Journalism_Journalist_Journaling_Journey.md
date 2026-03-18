@@ -144,3 +144,10 @@ I created a new GitHub project for 1776Wake updates I did yesterday. https://Git
 https://bsky.app/profile/greatsealusa.bsky.social/post/3mh6omnhxy22g   
 https://autistics.life/@RoundSparrow/116239357901470392   
 https://midwest.social/post/44732343   
+
+&nbsp;
+
+# Wednesday March 18, 2026
+
+https://autistics.life/@RoundSparrow/116251387555712801    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mhdzlfudmk2n   
