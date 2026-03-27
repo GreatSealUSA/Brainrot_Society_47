@@ -21,3 +21,14 @@ https://autistics.life/@RoundSparrow/116301839791736280
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi2glyylm22r   
 
 QUOTE ::: "the pen is mightier than sword” was true. The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them. ::: - year 2013
+
+&nbsp;
+
+# Saturation Dumb  
+
+Friday, March 27, 2026   
+
+NEW_OPERA_NAME #SaturationDumb    
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mi2ra2tnek2z    
+https://autistics.life/@RoundSparrow/116302591417643651   
