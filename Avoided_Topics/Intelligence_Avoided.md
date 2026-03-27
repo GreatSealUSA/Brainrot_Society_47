@@ -32,3 +32,13 @@ NEW_OPERA_NAME #SaturationDumb
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3mi2ra2tnek2z    
 https://autistics.life/@RoundSparrow/116302591417643651   
+
+&nbsp;
+
+# Do You Ever Think?
+
+NEW_OPERA_NAME #DoYouEverThink #OverdosedOnStupid       
+
+https://autistics.life/@RoundSparrow/116302778249113967     
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mi2twyfzfk2v    
+
