@@ -15,3 +15,22 @@ Dumb-shit is the winner. The entire #USA is #Losers on the world stage for #Twit
 
 Defeated by dumb memes, ignorance won. High speed TCP/IP meme-shit shit-commenting won.
 
+&nbsp;
+
+# How You Won
+
+NEW_OPERA_NAME #HowYouWon    
+
+https://autistics.life/@RoundSparrow/116308114616472371   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3mi57suxpa22s   
+
+&nbsp;
+
+1. You drove everyone with any intelligence or goodness crazy
+
+2. People drug overdosed or killed themselves
+
+3. You scream "Shut the fuck up" about intelligent smart ideas and people did indeed shut up for you.
+
+4. Now it is feedback loops of dumb-shit USA. Machine media feedback.
+
