@@ -1,5 +1,11 @@
 # What *Google Search* Says About BRS47
 
+Google search: "what is brain rot society 47?"
+
+<img width="1491" height="1500" alt="image" src="https://github.com/user-attachments/assets/01cdadab-91c6-4810-b648-99a49bc01e9b" />
+
+&nbsp;
+
 2026-05-27 
 
 https://share.google/aimode/pI2smQvprvcr8CO9U
