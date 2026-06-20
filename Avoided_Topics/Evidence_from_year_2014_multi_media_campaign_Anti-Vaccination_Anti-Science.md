@@ -17,9 +17,13 @@ Timeline:
 
 1. November 8, 2013 Trump private jet to Moscow, Russia. Time Magazine: https://time.com/5251484/donald-trump-flight-records-moscow-trip/
 
-2. December 20, 2013 USA news coverage of "Conservative International 2013" political movement. 60 days before February 20, 2013 Ukraine invasion by Putin. https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+2. December 20, 2013 USA news coverage of Russia's organized "Conservative International 2013" political movement. 60 days before February 20, 2014 Ukraine invasion ("Ukraine war") by Putin. https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
 
 3. Twitter messages from yea 2014 anti-vaccination https://www.BBC.com/news/world-us-canada-45294192 "It examined thousands of **tweets sent between 2014** and 2017. Vaccination was being used by trolls and sophisticated bots as a "wedge issue", said Mark Dredze from Johns Hopkins University."
 
 4. Donald Trump "It was **September 2014**. Vance was disturbed by Trump's "ignorant babble" about the dangers of **vaccines** . "I remember thinking, 'This guy has got to be pulling our legs,'" Vance says." - Newsweek. Is Donald Trump Really Just Andy Kaufman in Disguise? An Investigation. September 26, 2016 at 12:33 PM EDT - https://www.newsweek.com/donald-trump-andy-kaufman-disguise-election-502292
+
+5. April 9, 2019 - Russia still waging Internet warfare against USA population, winning hearts and minds of *We The People* to brain rot on medical knowledge. https://foreignpolicy.com/2019/04/09/in-the-united-states-russian-trolls-are-peddling-measles-disinformation-on-twitter/
+
+6. December 2019 COVID-2019 pandemic. Reaches North America in January 2020.
 
