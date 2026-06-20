@@ -21,5 +21,5 @@ Timeline:
 
 3. Twitter messages from yea 2014 anti-vaccination https://www.BBC.com/news/world-us-canada-45294192 "It examined thousands of **tweets sent between 2014** and 2017. Vaccination was being used by trolls and sophisticated bots as a "wedge issue", said Mark Dredze from Johns Hopkins University."
 
-4. Donald Trump "It was **September 2014**. Vance was disturbed by Trump's "ignorant babble" about the dangers of #vaccines . "I remember thinking, 'This guy has got to be pulling our legs,'" Vance says." - Newsweek. Is Donald Trump Really Just Andy Kaufman in Disguise? An Investigation. September 26, 2016 at 12:33 PM EDT - https://www.newsweek.com/donald-trump-andy-kaufman-disguise-election-502292
+4. Donald Trump "It was **September 2014**. Vance was disturbed by Trump's "ignorant babble" about the dangers of **vaccines** . "I remember thinking, 'This guy has got to be pulling our legs,'" Vance says." - Newsweek. Is Donald Trump Really Just Andy Kaufman in Disguise? An Investigation. September 26, 2016 at 12:33 PM EDT - https://www.newsweek.com/donald-trump-andy-kaufman-disguise-election-502292
 
