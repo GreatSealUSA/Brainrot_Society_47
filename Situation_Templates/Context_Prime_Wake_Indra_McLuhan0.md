@@ -16,5 +16,5 @@ Discussion topics.
 
 7. There are "alternate reality games" (ARG) and we are seeking true Reality peeling like an onion layer search. The Who rock music song "The Seeker" might help for context. Creative understanding creative learning. #JoyceARG #PaleBlueDotARG  are some of the ARG names.
 
-8. Star Wars Day. May the Force be With You. May 49, 1939
+8. Star Wars Day. May the Force be With You. May 4, 1939
 
