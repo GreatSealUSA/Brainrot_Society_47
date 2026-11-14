@@ -21,3 +21,6 @@ Discussion topics.
 9. Hinting. 三 looks like Tim ladder. 三 looks like Tower of Babel. 三 has meaning outside Ireland that also fits Joyce concerns. 三 looks like 3 to me, a Trinity Dublin? 三 looks like a stack of books or at least a CPU memory stack heap.
 
 10. Joseph Campbell, past professor at Sarah Lawrence college. Campbell is a Joycean. Campbell married a student, they honeymooned in  Woodstock NY. His wife Jean Erdman created her own Finnegans Wake work and is also a Joycean. Married couples of Joycean. After her husband died, she preserved his work and had full power for decades to contradict or disclaim his teachings. Do when people critic e Campbell, don't forget he had a fact-checker wife.
+
+11. Romans 11:32 .... https://news.artnet.com/art-world/yale-errata-exhibition-2751007
+
