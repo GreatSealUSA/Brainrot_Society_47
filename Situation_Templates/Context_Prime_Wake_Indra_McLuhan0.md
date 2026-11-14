@@ -18,3 +18,4 @@ Discussion topics.
 
 8. Star Wars Day. May the Force be With You. May 4, 1939
 
+9. Hinting. 三 looks like Tim ladder. 三 looks like Tower of Babel. 三 has meaning outside Ireland that also fits Joyce concerns. 三 looks like 3 to me, a Trinity Dublin? 三 looks like a stack of books or at least a CPU memory stack heap.
