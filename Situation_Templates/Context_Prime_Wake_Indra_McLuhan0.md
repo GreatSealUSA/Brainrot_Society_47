@@ -15,3 +15,6 @@ Discussion topics.
 6. Minute 22 of Apple TV+ show Pluribus pilot episode. James Joyce Finnegans Wake. Helen falls like Tim Finnegan. Dialog shortly before Helen's Fall standing outside a Public House.
 
 7. There are "alternate reality games" (ARG) and we are seeking true Reality peeling like an onion layer search. The Who rock music song "The Seeker" might help for context. Creative understanding creative learning. #JoyceARG #PaleBlueDotARG  are some of the ARG names.
+
+8. Star Wars Day. May the Force be With You. May 49, 1939
+
