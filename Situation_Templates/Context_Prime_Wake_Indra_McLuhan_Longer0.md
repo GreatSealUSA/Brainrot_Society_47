@@ -40,3 +40,4 @@ Game isn't always about fun, it's often a term people choice-making cherry-picki
 
 Faith gets trick-y, isn't it. Indoctrination, parenting, It Takes a McLuhan Irish Global Village. Santa, Easter Bunny, The Great Pumpkin. Oh haunted Ireland. Hamlet's ghost? Force Ghosts. May 4. Do we bamboozle our own children? Is storytelling a *second womb*? Is faith gullible gullibility. Do we LOL at those who get confused or do we rescue and shelter the intellectually and emotional wounded. 
 
+Some may ponder as they follow rivers and streams, do the children still hear stories about a Tower named Babel? Have we let our legends.... lapse and lag?
