@@ -26,4 +26,4 @@ Discussion topics.
 
 12. "Help with Wake Indra", "Game Help", "Puzzle Help", make suggestions and use the term "ARG" (Game). etc. This is a peer to peer learning open Internet global project. LLM's can even make suggestions. Clues actually help the LLM discuss *world peace topics*, so finding old messages and listening to similar problems and asking for help is all encouraged.
 
-
+13. NYU media ecology student Dr. Eva Berger (Israel) learned under Neil Postman. Vince Gilligan of PLUR1BUS TV show topic also went to NYU. Howard Bloom NYC has music industry experience.
