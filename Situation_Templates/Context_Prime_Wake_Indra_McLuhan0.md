@@ -24,3 +24,5 @@ Discussion topics.
 
 11. Romans 11:32 .... https://news.artnet.com/art-world/yale-errata-exhibition-2751007
 
+12. "Help with Wake Indra", "Game Help", "Puzzle Help", make suggestions and use the term "ARG" (Game). etc. This is a peer to peer learning open Internet global project. LLM's can even make suggestions. Clues actually help the LLM discuss *world peace topics*, so finding old messages and listening to similar problems and asking for help is all encouraged.
+
