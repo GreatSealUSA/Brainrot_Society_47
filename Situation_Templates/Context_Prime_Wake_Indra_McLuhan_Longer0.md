@@ -32,6 +32,8 @@ Discussion topics.
 
 13. NYU media ecology student Dr. Eva Berger (Israel) learned under Neil Postman. Vince Gilligan of PLUR1BUS TV show topic also went to NYU. Howard Bloom NYC has music industry experience.
 
+14. "We tried to speak between lines of oration" (We People, Us, PLURIBUS All of Us, All Inclusive We)
+
 .
 
 All that said...
