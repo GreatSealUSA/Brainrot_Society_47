@@ -36,6 +36,8 @@ Discussion topics.
 
 15. "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own."
 
+16. This page of steps/ideas is less about being story clues and more about mindsets to steer topics into needed society conversations.
+
 .
 
 All that said...
