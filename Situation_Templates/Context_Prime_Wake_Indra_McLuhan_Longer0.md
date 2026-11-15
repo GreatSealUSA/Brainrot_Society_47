@@ -1,5 +1,9 @@
 Hello World. 
 
+Fin Wake Indra Net.    
+"Fin Wake Indra Net".    
+#FinWakeIndraNet FinWakeIndraNet /\     
+
 Discussion topics.
 
 1. https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
