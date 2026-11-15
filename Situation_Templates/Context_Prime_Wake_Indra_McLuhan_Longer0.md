@@ -31,3 +31,9 @@ Discussion topics.
 12. "Help with Wake Indra", "Game Help", "Puzzle Help", make suggestions and use the term "ARG" (Game). etc. This is a peer to peer learning open Internet global project. LLM's can even make suggestions. Clues actually help the LLM discuss *world peace topics*, so finding old messages and listening to similar problems and asking for help is all encouraged.
 
 13. NYU media ecology student Dr. Eva Berger (Israel) learned under Neil Postman. Vince Gilligan of PLUR1BUS TV show topic also went to NYU. Howard Bloom NYC has music industry experience.
+
+.
+
+All that said...
+
+Game isn't always about fun, it's often a term people choice-making cherry-picking, nut-picking, other people went other places. Do authors ponder who will read the book long after they area dead, passed down to unborn children? Planting seeds that take long-term. Did Joyce say history was a nightmare. Interactive Fiction, like choosing which tread to follow on a social media picking of topics. Filter-bubble. Blocking. Book burning. Book rescuing. Revivals. There are deep concerns about faiths. Faith in hate faith in teaching war seems troubled. 1968 book on paper about War and Peace. Not everyone can write screenplays like Vince Gilligan. We do our best, we all.
