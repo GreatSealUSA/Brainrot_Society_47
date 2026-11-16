@@ -38,6 +38,9 @@ Discussion topics.
 
 16. This page of steps/ideas is less about being story clues and more about mindsets to steer topics into needed society conversations.
 
+17. Timothy Leary; quoted in Bukatman 1993; pg 139; "Computers are the most subversive thing I've ever done." ... "Computers are more addictive than heroin." "People need some way to activate, boot up, and change disks in their minds. In the 60s we needed LSD to expand reality and examine our stereotypes. With computers as our mirrors, LSD might not be necessary now."
+
+
 .
 
 All that said...
